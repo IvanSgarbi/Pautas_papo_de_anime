@@ -76,10 +76,25 @@
 
 # Anime mais cabaço
 - Amagami-san
+- Kekkon suru tte, Hontou desu ka
 
-### Melhor Anime
+### Melhor Estreia
+- Dandadan
+- Chi - Chikyuu no Undou ni Tsuite
+
+### Melhor continuação
+- Kono Subarashii Sekai ni Shukufuku wo! 3
+- Oshi no Ko 2
+- Re: Zero 3
 
 ### Maior decepção do Ano
+- Uzumaki
+- Acro Trip
+
+  
+### Fanservices mais desnecessários:
+- Tokidoki Bosotto Russia-go de Dereru Tonari no Alya-san
+  
 
 # Personagens
 ### Protagonista mais Badass
@@ -89,10 +104,9 @@
 - Sentoin D | Sentai Daishikaku
 - Satou | The Fable
 
-### Protagonista Bundão
+### Protagonista Mais Bundão
+> Protagonista mais frouxo, faz de tudo para não sair do beco se encontra devido sua paumolecência.
 - Sasaki | NegaPosi Angler
 - Os dois | Kekkon suru tte, Hontou desu ka
 - Lawrence | Ookami to Koushinryou: Merchant Meets the Wise Wolf
-
-
 
