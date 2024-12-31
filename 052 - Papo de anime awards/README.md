@@ -33,6 +33,25 @@
 - Sentai Daishikkaku
 - kono suba 3
 
+# Personagens
+### Protagonista mais Badass
+- Rafal | Chi.
+- Kafka | Kaijuu n8
+- Rishe | Loop 7
+- Sentoin D | Sentai Daishikaku
+- Satou | The Fable
+
+### Protagonista Mais Bundão
+> Protagonista mais frouxo, faz de tudo para não sair do beco em que se encontra devido sua paumolecência.
+- Sasaki | NegaPosi Angler
+- Os dois | Kekkon suru tte, Hontou desu ka
+- Lawrence | Ookami to Koushinryou: Merchant Meets the Wise Wolf
+
+### Melhor heroina
+- Anna | Makeine
+- Lemon | Makeine
+- Hina | Ao no Hako
+
 # Animes
 ### Melhor Anime Hypado
 > Animes que furaram a bolha antes mesmo de lançar
@@ -74,7 +93,6 @@
 - Ao no hako
 - Oshi no Ko
 - Yoru no Kurage wa Oyogenai
-
 
 ### Melhor Estreia
 - Dandadan
@@ -132,21 +150,3 @@
 - Elf san
 - 2.5D
 - Mahou shoujo Akogarete
-
-# Personagens
-### Protagonista mais Badass
-- Rafal | Chi.
-- Kafka | Kaijuu n8
-- Rishe | Loop 7
-- Sentoin D | Sentai Daishikaku
-- Satou | The Fable
-
-### Protagonista Mais Bundão
-> Protagonista mais frouxo, faz de tudo para não sair do beco em que se encontra devido sua paumolecência.
-- Sasaki | NegaPosi Angler
-- Os dois | Kekkon suru tte, Hontou desu ka
-- Lawrence | Ookami to Koushinryou: Merchant Meets the Wise Wolf
-
-### Melhor heroina
-- Anna | Makeine
-- Lemon | Makeine
