@@ -23,7 +23,7 @@
 - Oshi no ko
 
 ### Melhor Ending
-- Mehca Ude
+- Mecha Ude
 - Makeine
 - Kimi wa meido sama
 - Shuumatsu train
@@ -34,15 +34,15 @@
 - kono suba 3
 
 # Animes
-### Melhor Modinha
-> Modinhas que que realmente foram boas
+### Melhor Anime Hypado
+> Animes que furaram a bolha antes mesmo de lançar
 - Solo Leveling
 - Uzumaki
 - Dandadan
 - Shikanoko
 
 ### Melhor anime Popular
-> Anime para agradar o "povão"
+> Animes mais populares durante toda a exibição
 - Solo leveling
 - Kimetsu
 - Dandadan
@@ -73,28 +73,61 @@
 - Dandadan
 - Ao no hako
 - Oshi no Ko
+- Yoru no Kurage wa Oyogenai
 
-# Anime mais cabaço
-- Amagami-san
-- Kekkon suru tte, Hontou desu ka
 
 ### Melhor Estreia
 - Dandadan
 - Chi - Chikyuu no Undou ni Tsuite
+- Makeine
+- Shuumatsu train
+- Kaiju n8
+- Sentai Daishikkaku
+- Dungeon Meshi
+- Majo to Yajuu
 
 ### Melhor continuação
 - Kono Subarashii Sekai ni Shukufuku wo! 3
 - Oshi no Ko 2
-- Re: Zero 3
+- Kimetsu no Yaiba 4
+- Hibike Euphonium 3
+- oshi no ko 2
 
 ### Maior decepção do Ano
 - Uzumaki
-- Acro Trip
+- Acro Trip (Não foi decepção é 10/10)
+- Solo Leveling
+- Ao no miburo
+- Atri My dear Moments
+- Jaku chara tomozaki-kun 2
 
-  
-### Fanservices mais desnecessários:
+### Melhor surpresa
+- Shummatsu train
+- Vtuber
+- Mayonaka punch
+- Highspeed Etoile
+
+### Anime mais sonolento
+- Bartender
+- Tasuuketsu
+- Shoushimin series
+- Katsute mahoushoujo
+- Kekkon suru tte, Hontou desu ka
+- Shikanoko
+- METALIC ROUGE
+- Gimmai seikatsu
+
+### Anime mais cabaço
+- Amagami-san
+- Kekkon suru tte, Hontou desu ka
+- Boku no Tsuma wa Kanjou ga Nai (cópia de Chobits)
+- Koi wa Futago (Gemeas)
+
+### Anime mais bronha
 - Tokidoki Bosotto Russia-go de Dereru Tonari no Alya-san
-  
+- Elf san
+- 2.5D
+- Mahou shoujo Akogarete
 
 # Personagens
 ### Protagonista mais Badass
@@ -110,3 +143,6 @@
 - Os dois | Kekkon suru tte, Hontou desu ka
 - Lawrence | Ookami to Koushinryou: Merchant Meets the Wise Wolf
 
+### Melhor heroina
+- Anna | Makeine
+- Lemon | Makeine
