@@ -92,6 +92,7 @@
 - Kimetsu no Yaiba 4
 - Hibike Euphonium 3
 - oshi no ko 2
+- Mf Ghost 2
 
 ### Maior decepção do Ano
 - Uzumaki
@@ -106,6 +107,9 @@
 - Vtuber
 - Mayonaka punch
 - Highspeed Etoile
+- Loop 7
+- Senpai wa Otokonoko
+
 
 ### Anime mais sonolento
 - Bartender
@@ -138,7 +142,7 @@
 - Satou | The Fable
 
 ### Protagonista Mais Bundão
-> Protagonista mais frouxo, faz de tudo para não sair do beco se encontra devido sua paumolecência.
+> Protagonista mais frouxo, faz de tudo para não sair do beco em que se encontra devido sua paumolecência.
 - Sasaki | NegaPosi Angler
 - Os dois | Kekkon suru tte, Hontou desu ka
 - Lawrence | Ookami to Koushinryou: Merchant Meets the Wise Wolf
