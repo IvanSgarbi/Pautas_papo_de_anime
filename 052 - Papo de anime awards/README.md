@@ -46,11 +46,14 @@
 - Sasaki | NegaPosi Angler
 - Os dois | Kekkon suru tte, Hontou desu ka
 - Lawrence | Ookami to Koushinryou: Merchant Meets the Wise Wolf
+- Takuma | Boku no Tsuma wa Kanjou ga Nai
 
 ### Melhor heroina
 - Anna | Makeine
 - Lemon | Makeine
 - Hina | Ao no Hako
+- Shinomiya | Kaijuu 8-gou 
+- Guideau | Majo to Yajuu
 
 # Animes
 ### Melhor Anime Hypado
@@ -79,6 +82,7 @@
 - Chi. | Final do Oczy e do Badeni
 - Mahou shoujo bronha, trasnformação épica da Azul
 - Girls Band Cry | Primeira música
+- Bartender: Kami no Glass | Caipirinha
 
 ### Melhores Cenas: Entrada mais épica
 - Muzan caminhando | Kimetsu no yaiba
@@ -93,6 +97,7 @@
 - Ao no hako
 - Oshi no Ko
 - Yoru no Kurage wa Oyogenai
+- Shuumatsu Train Doko e Iku?
 
 ### Melhor Estreia
 - Dandadan
@@ -109,7 +114,6 @@
 - Oshi no Ko 2
 - Kimetsu no Yaiba 4
 - Hibike Euphonium 3
-- oshi no ko 2
 - Mf Ghost 2
 
 ### Maior decepção do Ano
@@ -127,7 +131,8 @@
 - Highspeed Etoile
 - Loop 7
 - Senpai wa Otokonoko
-
+- The Fable
+- Kenka Dokugaku
 
 ### Anime mais sonolento
 - Bartender
