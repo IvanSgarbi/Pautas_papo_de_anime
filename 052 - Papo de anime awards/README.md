@@ -14,7 +14,7 @@
 - Shikanoko
 - Dandadan
 - Ao no hako
-- Chi
+- Chi | GANHADOR!!!! uhulll
 - Dragon Ball Daima
 - Shuumatsu train
 - The Fable
@@ -24,7 +24,7 @@
 
 ### Melhor Ending
 - Mecha Ude
-- Makeine
+- Makeine | GRANDE VENCEDOR
 - Kimi wa meido sama
 - Shuumatsu train
 - oshi no ko 2
@@ -34,8 +34,8 @@
 - kono suba 3
 
 # Personagens
-### Protagonista mais Badass
-- Rafal | Chi.
+### Protagonista mais Fodão
+- Rafal | Chi. - GRANDE CAMPEÃO
 - Kafka | Kaijuu n8
 - Rishe | Loop 7
 - Sentoin D | Sentai Daishikaku
@@ -46,10 +46,10 @@
 - Sasaki | NegaPosi Angler
 - Os dois | Kekkon suru tte, Hontou desu ka
 - Lawrence | Ookami to Koushinryou: Merchant Meets the Wise Wolf
-- Takuma | Boku no Tsuma wa Kanjou ga Nai
+- Takuma | Boku no Tsuma wa Kanjou ga Nai - GRANDE VENCEDOR É O MAIS CABAÇO DE 2024
 
 ### Melhor heroina
-- Anna | Makeine
+- Anna | Makeine - grande ganhador
 - Lemon | Makeine
 - Hina | Ao no Hako
 - Shinomiya | Kaijuu 8-gou 
@@ -60,7 +60,7 @@
 > Animes que furaram a bolha antes mesmo de lançar
 - Solo Leveling
 - Uzumaki
-- Dandadan
+- Dandadan | SEM CONCORRENCIA
 - Shikanoko
 
 ### Melhor anime Popular
@@ -68,7 +68,7 @@
 - Solo leveling
 - Kimetsu
 - Dandadan
-- Kaiju 8 gou
+- Kaiju 8 gou | vencedor
 
 ### Melhores Cenas: Cenas marcantes
 - Kimetsu no yaiba 4 | Cena Final
@@ -78,14 +78,14 @@
 - Oshi no ko 2 | Aquela cena da Ruby
 - Makeine | NTR
 - Dandadan | Final do EP 1
-- Chi. | Final do Rafal
-- Chi. | Final do Oczy e do Badeni
+- Chi. | Final do Rafal - VENCEDOR
+- Chi. | Final do Oczy e do Badeni - VENCEDOR
 - Mahou shoujo bronha, trasnformação épica da Azul
 - Girls Band Cry | Primeira música
 - Bartender: Kami no Glass | Caipirinha
 
 ### Melhores Cenas: Entrada mais épica
-- Muzan caminhando | Kimetsu no yaiba
+- Muzan caminhando | Kimetsu no yaiba - VENCEDOR
 - Shinommiya de machadão | Kaijuu n8
 - Majo to Yajuu | Toda vez que o cara sai do caixão
 
@@ -95,7 +95,7 @@
 - Makeine
 - Dandadan
 - Ao no hako
-- Oshi no Ko
+- Oshi no Ko | VENCEDOR
 - Yoru no Kurage wa Oyogenai
 - Shuumatsu Train Doko e Iku?
 
@@ -104,25 +104,25 @@
 - Chi - Chikyuu no Undou ni Tsuite
 - Makeine
 - Shuumatsu train
-- Kaiju n8
+- Kaiju n8 - VENCEDOR
 - Sentai Daishikkaku
 - Dungeon Meshi
 - Majo to Yajuu
 
 ### Melhor continuação
 - Kono Subarashii Sekai ni Shukufuku wo! 3
-- Oshi no Ko 2
+- Oshi no Ko 2 - VENCEDOR
 - Kimetsu no Yaiba 4
 - Hibike Euphonium 3
 - Mf Ghost 2
 
 ### Maior decepção do Ano
-- Uzumaki
+- Uzumaki -  MENÇÃO HONROSA PQ É RUIM TAMBÉM
 - Acro Trip (Não foi decepção é 10/10)
 - Solo Leveling
 - Ao no miburo
 - Atri My dear Moments
-- Jaku chara tomozaki-kun 2
+- Jaku chara tomozaki-kun 2 - VENCEDOR
 
 ### Melhor surpresa
 - Shummatsu train
@@ -130,7 +130,7 @@
 - Mayonaka punch
 - Highspeed Etoile
 - Loop 7
-- Senpai wa Otokonoko
+- Senpai wa Otokonoko | VENCEDOR
 - The Fable
 - Kenka Dokugaku
 
@@ -142,11 +142,11 @@
 - Kekkon suru tte, Hontou desu ka
 - Shikanoko
 - METALIC ROUGE
-- Gimmai seikatsu
+- Gimmai seikatsu | VENCEDOR
 
 ### Anime mais cabaço
 - Amagami-san
-- Kekkon suru tte, Hontou desu ka
+- Kekkon suru tte, Hontou desu ka | SUPER CABAÇO VENCEDOR
 - Boku no Tsuma wa Kanjou ga Nai (cópia de Chobits)
 - Koi wa Futago (Gemeas)
 
